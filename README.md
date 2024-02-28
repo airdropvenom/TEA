@@ -1,0 +1,2 @@
+# TEA
+STAKING FOR TEA
